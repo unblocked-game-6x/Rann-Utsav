@@ -34,7 +34,7 @@ A fully equipped temporary township is recreated every year, featuring:
 
 ## 📦 Explore More
 
-### 🎫 [View Packages](https://www.rannutsav.net/rann-utsav-packages/)
+### 🎫 [View Packages](https://www.rannutsav.com/packagetour2.php)
 - All-inclusive stay and travel options
 
 ### 🏨 [Browse Our Other Property in Kutch](#)
@@ -45,9 +45,9 @@ A fully equipped temporary township is recreated every year, featuring:
 
 ## 🚀 Quick Links
 
-- [View Itinerary](https://www.rannutsav.net/nature/)
-- [Check Special Dates](https://www.rannutsav.net/upselling/)
-- [Book Accommodation](https://www.rannutsav.net/architecture-at-rann-utsav/)
+- [View Itinerary](https://www.rannutsav.com/white-rann-resort.php)
+- [Check Special Dates](https://www.rannutsav.com/dholavira.php)
+- [Book Accommodation](https://www.rannutsav.com/accommodation.php)
 
 ---
 
